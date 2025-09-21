@@ -1,4 +1,4 @@
-# i.br.gg — O RPG definitivo em Realidade Virtual
+# I.BR.GG — O RPG definitivo em Realidade Virtual
 
 **i.br.gg** está sendo desenvolvido para ser o RPG definitivo em realidade virtual. Um mundo inteiro construído por uma equipe de mais de **64 desenvolvedores**, dedicados a transformar cada detalhe em algo único, imersivo e inesquecível.
 
