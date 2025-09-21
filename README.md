@@ -52,3 +52,4 @@ Um mundo virtual onde os limites da imaginação deixam de existir.
 ---
 
 > _Prepare-se para viver o RPG como nunca antes. O futuro começa aqui._
+`Aproveite amo meus amigos: susta_dev1234, voidz.011, zenect_, 7gsw(Snoow discord.gg/peitos), portugaxd, matheu.01, aboboracompedra2, isaquin._.uwu.`
